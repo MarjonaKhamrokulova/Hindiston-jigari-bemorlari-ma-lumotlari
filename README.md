@@ -1,0 +1,1 @@
+# Hindiston-jigari-bemorlari-ma-lumotlari
